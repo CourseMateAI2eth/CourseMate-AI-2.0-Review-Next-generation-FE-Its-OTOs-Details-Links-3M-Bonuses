@@ -39,6 +39,63 @@
 ✅ Built a stunning academy that outperforms Udemy
 ✅ Automated 90% of student communications
 ✅ 5X'd my conversion rates with AI-optimized content</p>
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
 
 <h2><strong>Inside CourseMate AI 2.0: The Features That Will Blow Your Mind</strong></h2>
 <p class="ds-markdown-paragraph">This isn't just an upgrade - it's a <strong>complete revolution</strong> in course creation:</p>
@@ -160,3 +217,60 @@ The secret AI-powered traffic system that filled my courses with 2,843 students 
 <p class="ds-markdown-paragraph">Option 2: Click the button below, lock in your one-time price, and join me in the future of education.</p>
 <p class="ds-markdown-paragraph">👉 [Get CourseMate AI 2.0 Now] 👈</p>
 <p class="ds-markdown-paragraph">P.S. The first 100 buyers get my exclusive "6-Figure Course Blueprint" free ($297 value). Don't miss out.</p>
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
